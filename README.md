@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @700Nat1k
-- 👀 I’m interested in ... Leaarning
+- 👀 I’m interested in ... Learning
 - 🌱 I’m currently learning ...ubuntu and command terminal
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...L00na787@protonmail.com
